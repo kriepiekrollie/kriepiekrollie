@@ -2,6 +2,6 @@
 
 My name is benjamin
 
-## i am trying to make things 👑💅💁‍♀️
+## i am trying to make things 👑💅💁‍♂️
 
 have a look if you want to
